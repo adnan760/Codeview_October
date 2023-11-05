@@ -1,0 +1,2 @@
+# Code View Internship Programme
+Code View internship program provides valuable learning opportunities and participants are given weekly assignments to enhance their skills and gain real-world experience. The program aims to help individuals grow by offering practical tasks and hands-on learning. Code View encourages enthusiastic involvement and aims to equip participants with useful skills for their future endeavors.
